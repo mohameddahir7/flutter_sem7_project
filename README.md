@@ -1,5 +1,6 @@
 #mohamed Dahir Farah
-![eng mo](https://user-images.githubusercontent.com/124419412/217045694-4e027b14-11de-4d0f-9c95-160924a367b3.jpeg)
+
+![WhatsApp Image 2023-02-06 at 10 23 54](https://user-images.githubusercontent.com/124419412/217054399-3ff37c08-d78e-4c3c-964c-d8d04728002a.jpeg)
 
 #ID C119372
 
